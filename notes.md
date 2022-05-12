@@ -174,3 +174,13 @@ For example:
       (Precise distance of the moon, the sun and
       the earth which produce eclipse)
 
+
+## Thought is like a river
+
+* Imagine there is a river, the water is clear and
+  you can clearly see that there's alot of sharp
+  stick or stone that could harm you if you step on it.
+* Imagine if you jump into the river and you really
+  step on that sharp thing. Due to the pain of stepping
+  on it that is, the legs will weaken and cause you
+  to fall and drown into the river.
