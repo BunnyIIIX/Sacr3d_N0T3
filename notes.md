@@ -184,3 +184,50 @@ For example:
   step on that sharp thing. Due to the pain of stepping
   on it that is, the legs will weaken and cause you
   to fall and drown into the river.
+
+
+## Shattering The Living Organism
+
+* With 2 input frequencies, for example:-
+  - Headphone setup: `Left = Low` and `Right = High`.
+  - The higher frequency must be `11x (eleven times)`
+    the lower, which is `right` frequency must be
+    `11x (eleven times)` the `left`.
+  - For musicians, this is called `eleven harmonic`
+  - Micro organism begin to shattered when we add 
+    `eleven harmonic`.
+
+### Destroying the corrupted micro organism 
+* `Cancer` & `Leukemia`:
+  - Between 100,000hz to 300,000hz.
+
+
+## You are different my friends
+Please...Please always remember this, we as a human being are
+so special.. We have a very special gift given to us by
+God/Higher Self/Source or whatever you called ... The gift is
+the 'free will'.. Some people may think 'free will' are
+nonsense but for me its a very very special gift... Please
+remember, nothing can stop or trap you as long as you are
+alive on this earth. You have many advantages, you can do
+sooo many things that you never thought possible. There is
+nothing that cannot be cured in this world.  please, don't
+give up, keep seeking knowledge, study and keep studying.. Do
+some research about our brain, how it work, how all the
+glands work, how to excited/use Vegus Nerve, how to connect
+heart and brain, and many many more things... believe me,
+you'll be surprise to know how much we can do...Remember
+this,  they won't be able to do anything to you as long as
+you don't admit defeat, as long as you still breathing...
+Please don't give up, I understand how you feel .. All my
+family, my mom, my dad, brother, sister, nephew, brother in
+law, cousins, averyone got that j@bs .. No one listen to me,
+sometimes it feels very lonely, i miss my mom and dad and
+family soo much.. They changed, they really  changed..They
+are not the same anymore .. but, it's because they don't
+realize it, they don't want to wake up, they dont even want
+to realize or try to understand what is it.. But You, It's
+different.. People who are aware and understand like you,
+it's different.  please, don't give up... Promise me my dear
+friend...
+
